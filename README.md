@@ -1,6 +1,6 @@
 
 <p align="center">
-  <img src="https://files.catbox.moe/9xs60t.png" alt="doomed yaoi">
+  <img src="https://files.catbox.moe/5huy36.png" alt="doomed yaoi">
 </p>
 
 
